@@ -1,1 +1,0 @@
-# n-fus-y-netim-sistemi
